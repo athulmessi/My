@@ -1,2 +1,2 @@
-# My
-It’s my own 
+# im athul
+nothing good 
